@@ -1,2 +1,2 @@
-# nothing
-as the name suggest this repo contains nothing 
+# nothing MF
+as the name suggest this repo contains nothing but still contains these Fuckin' text
